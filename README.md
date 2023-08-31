@@ -2,6 +2,5 @@
 
 
 
-![Design sem nome (2)](https://github.com/RichardFront/photographer-website/assets/97412139/29dfe63c-e626-4cbe-8331-7fec97c2c5a8)
 
-
+![Design sem nome (2)](https://github.com/RichardFront/photographer-website/assets/97412139/157fd0a5-4709-4e19-943a-f731461f56d6)
